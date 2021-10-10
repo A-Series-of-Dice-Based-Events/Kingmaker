@@ -1,4 +1,7 @@
-# Title of AP
+# Kingmaker 
+
+Consider checking out the official conversion from Paizo!
+https://www.gameontabletop.com/cf194/kingmaker-10th-anniversary.html
 
 [A Series of Dice-Based Events Discord](https://discord.gg/UQ8UD3H)
 
